@@ -1,4 +1,4 @@
-<p align="center"><a href="https://t.me/mastiwithfriendsx"><img src="https://te.legra.ph/file/8e779ca298fb47f368f2b.jpg"></a></p>      
+<p align="center"><a href="https://t.me/thecchub"><img src="[https://te.legra.ph/file/8e779ca298fb47f368f2b.jpg](https://graph.org/file/656ee8d83cc96a47cd7d9.jpg)"></a></p>      
   
            
                             ─「 𝙳𝙴𝙿𝙻𝙾𝚈𝙴 𝙾𝙽 𝙷𝙴𝚁𝙾𝙺𝚄」─      
